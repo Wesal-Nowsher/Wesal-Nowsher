@@ -1,6 +1,6 @@
 # Wesal Nowsher
 
-**Senior Frontend Engineer · AI Integration · Tech Lead**  
+**Senior Full-stack Engineer · AI Integration · Tech Lead**  
 manama, Bahrain · Remote-first · Working with clients across AU, US, UK & Dubai
 
 ---
